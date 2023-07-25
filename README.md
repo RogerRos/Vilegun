@@ -1,0 +1,1 @@
+In my subtle opinion, I think that the world's attempt to change gives us, the programmers, entrepreneurs, inventors, etc. the comfort of accepting the fact and being able to do our work comfortably since it is supported by change.
